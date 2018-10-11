@@ -1,0 +1,2 @@
+# GMO Food Products
+For my blog I am going to post about GMOs. I am going to take the approach of giving both sides of the argument of GMOs. My audience is food consumers that are looking for more information on GMOs and whether they are safe for food consumption. I will post arguments for and against GMOs to give the reader a choice and the information to make that choice. My blog will be an informational base that discusses the both sides of the controversy.
